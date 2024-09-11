@@ -1,4 +1,9 @@
-## Hi there 👋
+Reach me here: https://www.linkedin.com/in/justinlmajors/
+
+Data Analysis
+Program Management
+Oen Source Visual Designs for laser cutting and 3d printing
+Residential and Event Photography
 
 <!--
 **justmajors/justmajors** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
